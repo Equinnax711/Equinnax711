@@ -5,6 +5,7 @@ I'm currently interested in games, data analytics, software developement, and co
 You can reach me through Linkedin or email!
 
 Linkedin: https://www.linkedin.com/in/justin-chan-030ba7183/
+
 Email: justin.chan747@gmail.com
 
 <!---
